@@ -1,1 +1,0 @@
-https://radiokot.ru/forum/viewtopic.php?f=16&t=143554#
